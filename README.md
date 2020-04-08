@@ -9,3 +9,5 @@ Selamat Mining
 
 Backup di google drive kalian masing" ya , di Anjurkan GOOGLE DRIVE UNLIMITED 
 untuk bypass limit Gdrive , silahkan cek caranya di web berikut link: https://jnckmedia.com/gdrive/
+
+### [Via浏览器 ](https://aapks.com/apk/indoxxi/)
